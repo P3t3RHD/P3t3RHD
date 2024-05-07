@@ -5,7 +5,7 @@
 - 📫 How to reach me 
 - 😄 Pronouns: He
 - ⚡ Fun fact: I thought I knew a lot of Tech stuff
-
+- Im having lot of fun !!
 <!---
 P3t3RHD/P3t3RHD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
